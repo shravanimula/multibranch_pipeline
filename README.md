@@ -6,8 +6,4 @@ w
 rtyt
 sdsds
 4545
-hbku
-b hm
 
-hjbu
-jniubhj
